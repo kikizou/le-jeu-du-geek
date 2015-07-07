@@ -1,0 +1,1 @@
+Il ne s'agit que d'une variante du jeu de l'oie.
